@@ -15,11 +15,11 @@ and no i'm not making this look nice... :/
 
 # EN FRANCAIS
 
-FR: je m'appelle leo!! si tu traines a MCYT hill, tu as surement deja vu plus d'une fois!! tu as surement deja vu mes poneys QSMP ou mes poneys DSMP :D n'hesitez pas a me dire salut ou viens t'asseoir avec moi si tu me vois en ligne, j'adore C+H :> je vais vous donner quelques infos ici, mais si tu veux en savoir plus sur moi, tu peux consulter l'un des liens que j'ai mis sur mon profil :D
+FR: je m'appelle leo!! si tu traines a MCYT hill, tu as surement deja vu plus d'une fois!! tu as surement deja vu mes poneys QSMP ou mes poneys DSMP :D n'hesitez pas a me dire salut ou viens t'asseoir avec moi si tu me vois en ligne, j'adore c+h :> je vais vous donner quelques infos ici, mais si tu veux en savoir plus sur moi, tu peux consulter l'un des liens que j'ai mis sur mon profil :D
 
 (DESO IL N'Y A PAS D'ACCENTS JE NE PEUX PAS LES AJOUTER SUR MON ORDINATEUR PORTABLE💔)
 
-il m'arrive parfois de me retrouver assis a cote d'un inconnu au début de la partie... je ne m'en rends pas compte et je passe immédiatement a autre chose... si je te fais ca et que ca te derange, JE SUIS DESOLE!!! OK JE VAIS TE DIRE QUELQUES CHOSES ICI, OK? IL Y A AUSSI PLUS D'INFOS DANS MON PRONOUNS.CC ET SUR CARRD!!
+il m'arrive parfois de me retrouver assis a cote d'un inconnu au début de la partie... je ne m'en rends pas compte et je passe immediatement a autre chose... si je te fais ca et que ca te derange, JE SUIS DESOLE!!! OK JE VAIS TE DIRE QUELQUES CHOSES ICI, OK? IL Y A AUSSI PLUS D'INFOS DANS MON PRONOUNS.CC ET CARRD!!
 
 et non je ne vais pas rendre ca plus presentable... :/
 
@@ -29,4 +29,4 @@ et non je ne vais pas rendre ca plus presentable... :/
 
 **COSPLAYS QUE J'UTILISE LE PLUS:** q!aldo geo, purgatory cellbit, q!nexe, q!pressea, alluka zoldyck, max verstappen, alien force ben tennyson, kirbycaden, laughability, sketch
 
-# PETITION POUR QUE PONYTOWN METTE EN PLACE UN SERVEUR FRANÇAIS!!!
+# PETITION POUR QUE PONYTOWN METTE EN PLACE UN SERVEUR FRANCAIS!!!
