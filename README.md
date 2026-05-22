@@ -25,8 +25,8 @@ et non je ne vais pas rendre ca plus presentable... :/
 
 
 
-**LES PRINCIPAUX FANDOMS DANS LESQUELS TU ME VERRAS EN COSPLAY:** QSMP & QSMP2, DSMP, ben 10, formule 1, hunter x hunter, ROBLOX (ccs/myths/admins/developpeurs/personnages du jeu), FNaF, pokemon, fairy tail!! mais j'ai toujours plein de ponis et d'anciens cosplays, donc tu pourrais me voir dans un cosplay d'un autre fandom! je fais aussi parfois des cosplays pour mon potes, donc tous mes cosplays ne proviennent pas forcément d'un fandom dont je fais partie...
+**FANDOM POUR LESQUELS JE FAIS DU COSPLAY:** QSMP & QSMP2, DSMP, ben 10, formule 1, hunter x hunter, ROBLOX (ccs/myths/admins/developpeurs/personnages du jeu), FNaF, pokemon, fairy tail!! mais j'ai toujours plein de ponis et d'anciens cosplays, donc tu pourrais me voir dans un cosplay d'un autre fandom! je fais aussi parfois des cosplays pour mon potes, donc tous mes cosplays ne proviennent pas forcément d'un fandom dont je fais partie...
 
-**PRINCIPAUX COSPLAYS QUE JE PORTE :** q!aldo geo, purgatory cellbit, q!nexe, q!pressea, alluka zoldyck, max verstappen, alien force ben tennyson, kirbycaden, laughability, sketch
+**COSPLAYS QUE J'UTILISE LE PLUS:** q!aldo geo, purgatory cellbit, q!nexe, q!pressea, alluka zoldyck, max verstappen, alien force ben tennyson, kirbycaden, laughability, sketch
 
 # PETITION POUR QUE PONYTOWN METTE EN PLACE UN SERVEUR FRANÇAIS!!!
