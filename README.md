@@ -1,4 +1,4 @@
-<img width="400" height="400" alt="my-image (2)" src="https://github.com/user-attachments/assets/e93ca146-e781-4767-a16e-2f7bb5b6e13b" />
+<img width="400" height="400" alt="my-image (2)" src="https://github.com/user-attachments/assets/e93ca146-e781-4767-a16e-2f7bb5b6e13b" /> when you chill with everyone
 
 
 
