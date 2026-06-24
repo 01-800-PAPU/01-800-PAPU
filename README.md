@@ -4,6 +4,8 @@ also these are my fandoms since i have nowhere else to put them: mcyt (QSMP & DS
 
 my style on pt is extremely inconsistent sorry everyone
 
+dumbass of the year award goes to the person who genuinely asked me "youre more worried about people sexualizing PIXELATED south park characters than ACTUAL REAL LIFE CHILDREN being exploited???"
+
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
 <img width="200" height="200" alt="HKAVB9BXcAAiW38" src="https://github.com/user-attachments/assets/1216c4ef-c93f-4bae-87f9-54e4b337adaf" />
