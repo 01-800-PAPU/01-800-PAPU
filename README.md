@@ -4,10 +4,8 @@ FUCK FARIIS FUCK HAIPER FUCK FOREVER FUCK DTEAM ANY OF THEIR SUPPORTERS DNIIII L
 
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
-<img width="200" height="200" alt="HKAVB9BXcAAiW38" src="https://github.com/user-attachments/assets/1216c4ef-c93f-4bae-87f9-54e4b337adaf" />
 <img width="250" height="200" alt="HJR9TODX0Ac9WV2" src="https://github.com/user-attachments/assets/8ab3df64-ea2f-43c4-a00e-f5935566de52" />
 <img width="200" height="200" alt="HKBJYgKXsAA681S" src="https://github.com/user-attachments/assets/5453f8c1-6b47-4d67-b476-cbcbc824e8ab" />
-<img width="230" height="200" alt="HIdY-WpWAAAh4rE" src="https://github.com/user-attachments/assets/da947d45-b423-4f6c-874a-f8131df8ad47" />
 <img width="250" height="200" alt="HJXJ2cTWQAE0jV4" src="https://github.com/user-attachments/assets/885082ac-9733-4923-9f6a-df986859b997" />
 <img width="220" height="200" alt="HITBo_PWQAAGjBz" src="https://github.com/user-attachments/assets/1c22a84f-6876-42a0-a995-2d42feb4082a" />
 <img width="210" height="200" alt="HHQEknwXsAANv-s" src="https://github.com/user-attachments/assets/8c07c5a2-a579-4757-ae8f-93b50dd5f8da" />
