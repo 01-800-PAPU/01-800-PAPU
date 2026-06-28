@@ -1,6 +1,6 @@
 also these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
 
-dni: basic criteria, over 19 unless we already know each other (why would u even want to interact with me anywayLMFAOO), support problematic creators (dteam, wilbur, fariis, haiper, forever, etc.), weirdos who wont respect my boundaries
+dni: basic criteria, over 20 unless we already know each other (why would u even want to interact with me anywayLMFAOO), support problematic creators (dteam, wilbur, fariis, haiper, forever, etc.), weirdos who wont respect my boundaries
 
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
