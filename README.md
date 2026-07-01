@@ -2,7 +2,7 @@ also these are my fandoms since i have nowhere else to put them: mcyt - formula 
 
 dni: basic criteria, over 20 unless we already know each other (why would u even want to interact with me anywayLMFAOO), support problematic creators (dteam, wilbur, fariis, haiper, forever, etc.), weirdos who wont respect my boundaries
 
-i usually won't come and sit with anyone, including my friends, unless prompted, if i'm sad, or if they come sit with me first :) so pls feel free to sit with me whenever! and if we're friends aand i don't come to you pls don't think anything of it LOL you can always come to me
+i usually won't come and sit with anyone (including my friends) unless prompted, if i'm sad, if they come sit with me first, or if i just feel like moving :) so pls feel free to sit with me whenever! and if we're friends aand i don't come to you pls don't think anything of it LOL you can always come to me
 
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
