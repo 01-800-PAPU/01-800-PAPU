@@ -1,6 +1,6 @@
-**i do not agree with the comments aldo made during extr3mo. :/**
+**i do not agree with the comments aldo made during extr3mo and right now i do not identify with the cc. :/**
 
-**no estoy de acuerdo con los comentarios que hizo aldo durante extr3mo. :/**
+**no estoy de acuerdo con los comentarios que hizo aldo durante extr3mo y ahorita no me identifico con el cc. :/**
 
 also these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - guitar hero - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - mortal kombat - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - garfield and friends - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
 
