@@ -1,8 +1,8 @@
-**i do not agree with the comments aldo made during extr3mo. :/**
+**i do not agree with the comments aldo made during extr3mo. :/ misogyny is a huge problem in the minecraft community and i do not identify with what he said at all**
 
-**no estoy de acuerdo con los comentarios que hizo aldo durante extr3mo. :/**
+**no estoy de acuerdo con los comentarios que hizo aldo durante extr3mo. :/ la misoginia es un problema enorme en la comunidad de minecraft y no me identifico para nada con lo que dijo**
 
-**je ne suis pas d'accord avec ce qu'aldo a dit dans extr3mo. :/**
+**je ne suis pas d'accord avec ce qu'aldo a dit dans extr3mo. :/ la misogynie est un énorme problème au sein de la communauté minecraft et je ne partage absolument pas ses propos**
 
 i love tinakitten / amo a tinakitten / j'adore tinakitten <3
 
