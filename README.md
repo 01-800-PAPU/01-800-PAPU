@@ -1,11 +1,3 @@
-**i do not agree with the comments aldo made during extr3mo. :/ misogyny is a huge problem in the minecraft community and i do not identify with what he said at all**
-
-**no estoy de acuerdo con los comentarios que hizo aldo durante extr3mo. :/ la misoginia es un problema enorme en la comunidad de minecraft y no me identifico para nada con lo que dijo**
-
-**je ne suis pas d'accord avec ce qu'aldo a dit dans extr3mo. :/ la misogynie est un énorme problème au sein de la communauté minecraft et je ne partage absolument pas ses propos**
-
-i love tinakitten / amo a tinakitten / j'adore tinakitten <3
-
 these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - guitar hero - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - mortal kombat - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - garfield and friends - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
 
 dni: basic criteria, over 20 unless we already know each other (why would u even want to interact with me anywayLMFAOO), support problematic creators (dteam, wilbur, fariis, haiper, forever, etc.), weirdos who wont respect my boundaries, weirdos who won't hold their streamers accountable for their actions
