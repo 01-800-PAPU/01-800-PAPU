@@ -2,8 +2,6 @@ these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - b
 
 i usually won't come and sit with anyone (including my friends) unless told to, if i'm sad, if they come sit with me first, or if i just feel like moving :) so pls feel free to sit with me whenever! and if we're friends aand i don't come to you pls don't think anything of it LOL you can always come to me
 
-sabes? de todos los de la casa, coco, juan era el que mejor me caía y al que más quería. yo antes de todo lo que pasó, yo hubiera dado mi vida por él
-
 ever since qjuan died i've been getting increasingly more suicidal someone resurrect him NOW
 
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
