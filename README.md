@@ -14,4 +14,5 @@ ever since qjuan died i've been getting increasingly more suicidal someone resur
 <img width="200" height="200" alt="HKBJYgKXsAA681S" src="https://github.com/user-attachments/assets/5453f8c1-6b47-4d67-b476-cbcbc824e8ab" />
 <img width="210" height="200" alt="HJ_p4v2WoAAAK0k" src="https://github.com/user-attachments/assets/d749158f-b79e-4cb1-8d7f-0d8036b4556b" />
 <img width="250" height="200" alt="Captura de pantalla 2026-06-18 203431" src="https://github.com/user-attachments/assets/a4e753e8-5d21-4042-8ecd-57fae4b80052" />
-<img width="200" height="200" alt="Untitled73_20260715190029" src="https://github.com/user-attachments/assets/de67a0c1-bb24-4246-848c-e3abaa333744" />
+<img width="200" height="200" alt="622434789-1b832636-35a7-4180-9638-ad0de9c8ea13" src="https://github.com/user-attachments/assets/0dc98371-1857-4a47-afe9-0040df5f81df" />
+
