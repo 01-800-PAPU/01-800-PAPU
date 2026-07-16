@@ -2,6 +2,7 @@ AL ADMIN DE [PT-WALK-OF-FAME](https://github.com/pt-walk-of-fame) TQM MUCHISIMAS
 
 <img width="500" height="55" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
 
+<img width="130" height="130" alt="Untitled73_20260715190029" src="https://github.com/user-attachments/assets/de67a0c1-bb24-4246-848c-e3abaa333744" />
 
 these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - guitar hero - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - mortal kombat - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - garfield and friends - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
 
