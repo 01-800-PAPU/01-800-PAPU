@@ -1,4 +1,4 @@
-AL ADMIN DE PT WALK OF FAME TQM MUCHISIMAS GRACIAS. HOSTIA!!!!
+AL ADMIN DEL PT WALK OF FAME TQM MUCHISIMAS GRACIAS. HOSTIA!!!!
 
 <img width="500" height="55" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
 
