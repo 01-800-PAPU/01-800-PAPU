@@ -1,5 +1,7 @@
 <img width="500" height="55" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" /> HOSTIA!!!! MUCHISIMAS GRACIAS
 
+PUMPKINDUO DNIUF WHEN IM IN MY QUACKITY SKINS I HATE PUMPKINDUO WITH A BURNING PASSION
+
 these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - guitar hero - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - mortal kombat - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - garfield and friends - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
 
 i usually won't come and sit with anyone (including my friends) unless told to, if i'm sad, if they come sit with me first, or if i just feel like moving :) so pls feel free to sit with me whenever! and if we're friends aand i don't come to you pls don't think anything of it LOL you can always come to me
