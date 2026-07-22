@@ -8,7 +8,7 @@ i am usually with my party aka vash dislikers, but feel free to interact anytime
 
 **frequently asked questions since people think im stupid asf because im 14 🫩**
 
-how do you know three languages: i was in french immersion in school from grades 1-8, my mom was too so i could speak it outside of school at times. as for spanish, i'm not entirely fluent but i've been learning it for around a year and consider myself B1 almost B2
+how do you know three languages: i was in french immersion in school from grades 1-8, my mom was too so i could speak it outside of school at times. as for spanish, i'm not entirely fluent but i'm learning it and consider myself B1 almost B2
 
 are you homophobic: ? genuinely why do so many people ask me this NO IM NOT HOMOPHOBIC IM BISEXUAL
 
