@@ -1,13 +1,18 @@
-<img width="500" height="55" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
+*aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
 
-<img width="500" height="60" alt="Captura de pantalla 2026-07-28 153434" src="https://github.com/user-attachments/assets/3cf4d415-c7e2-4096-a4a2-42a778629c60" />
+<img width="250" height="30" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
+<img width="250" height="30" alt="Captura de pantalla 2026-07-28 153434" src="https://github.com/user-attachments/assets/3cf4d415-c7e2-4096-a4a2-42a778629c60" />
+<img width="250" height="25" alt="Captura de pantalla 2026-07-28 153611" src="https://github.com/user-attachments/assets/edf660aa-b6ee-428e-ac8b-40f7b3a52e6f" />
+<img width="250" height="40" alt="Captura de pantalla 2026-07-29 225934" src="https://github.com/user-attachments/assets/bbd20efb-935c-4fe4-a4fb-0474438adc1c" />
 
-<img width="500" height="50" alt="Captura de pantalla 2026-07-28 153611" src="https://github.com/user-attachments/assets/edf660aa-b6ee-428e-ac8b-40f7b3a52e6f" />
 
-<img width="500" height="70" alt="Captura de pantalla 2026-07-29 225934" src="https://github.com/user-attachments/assets/bbd20efb-935c-4fe4-a4fb-0474438adc1c" />
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers)
 
+*i also have some other awards too!!*
 
-OMG OMG OMG MUCHISIMAS GRACIAS 🥹🥹🥹 QUIZAS YO SEA EL ALDO_GEO DE PONYTOWN
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies
+
+THANK YOU SO MUCH!!
 
 
 
