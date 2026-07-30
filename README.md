@@ -8,7 +8,7 @@
 
 [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers)
 
-*i also have some other awards too!!*
+*i also have some other mentions too!!*
 
 [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies
 
