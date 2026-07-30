@@ -4,6 +4,8 @@
 
 <img width="500" height="50" alt="Captura de pantalla 2026-07-28 153611" src="https://github.com/user-attachments/assets/edf660aa-b6ee-428e-ac8b-40f7b3a52e6f" />
 
+OMG OMG OMG MUCHISIMAS GRACIAS 🥹🥹🥹 QUIZAS YO SEA EL ALDO_GEO DE PONY TOWN
+
 
 
 # PUMPKINDUO/TNTDUO DNIUF WHEN IM IN MY QUACKITY SKINS I HATE BOTH
