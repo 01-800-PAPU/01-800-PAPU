@@ -11,21 +11,11 @@
 
 [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town)
 
-*i also have some other mentions too!!*
+*i also have some other mentions too!*
 
 [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies
 
 THANK YOU SO MUCH!!
-
-
-
-# PUMPKINDUO/TNTDUO DNIUF WHEN IM IN MY QUACKITY SKINS I HATE BOTH
-
-these are my fandoms since i have nowhere else to put them: mcyt - formula 1 - ben 10 - the band ghost - joll and conk - hunter x hunter - fairy tail - pokemon - goosebumps - pet sematary - guitar hero - dragon ball - NHL - AoT - marvel - dc - minecraft horror - roblox webseries - roblox myths - mortal kombat - the backrooms - sonic the hedgehog - south park - fnaf - supernatural - hamilton - doctor nowhere - andys apple farm - sk3tchyt (pretty much the only roblox cc i gaf about) -  lego movies - the outsiders - IT - nascar - may madness 2012 - garfield and friends - need for speed - omori - danganronpa - party.exe - vocaloid - project sekai - middle school book series - sailor moon - saga of tanya the evil - companion - the legend of zelda - obsession - zom 100 - MLP - glee - good boys 2019 - some other stuff i probably forgot to add
-
-i am usually with my party aka vash dislikers, but feel free to interact anytime unless im on dni/uf/uid or one of my friends are, i love to make friens
-
-i call everyone "bud" and "buddy" a lot like not even as a joke i just use it affectionately all the time 🫩
 
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
