@@ -5,7 +5,7 @@
 <img width="250" height="25" alt="Captura de pantalla 2026-07-28 153611" src="https://github.com/user-attachments/assets/edf660aa-b6ee-428e-ac8b-40f7b3a52e6f" />
 <img width="250" height="40" alt="Captura de pantalla 2026-07-29 225934" src="https://github.com/user-attachments/assets/bbd20efb-935c-4fe4-a4fb-0474438adc1c" />
 <img width="250" height="35" alt="Captura de pantalla 2026-07-30 225911" src="https://github.com/user-attachments/assets/9572ea60-88c4-4692-a407-db23f2f1dafe" />
-<img width="250" height="25" alt="Captura de pantalla 2026-07-31 024421" src="https://github.com/user-attachments/assets/cc7fd498-c91f-4a7c-b4f1-9f92bc8de8ff" />
+<img width="250" height="27" alt="Captura de pantalla 2026-07-31 024421" src="https://github.com/user-attachments/assets/cc7fd498-c91f-4a7c-b4f1-9f92bc8de8ff" />
 
 
 
