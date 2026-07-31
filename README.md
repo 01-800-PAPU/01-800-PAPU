@@ -1,3 +1,5 @@
+<img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
+
 *aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
 
 <img width="250" height="30" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
@@ -35,6 +37,7 @@ THANK YOU SO MUCH!!
 <img width="200" height="200" alt="c1613c95eaff7b4fb34234e89c3530e6" src="https://github.com/user-attachments/assets/04823f8f-bbd6-4830-9d7e-7e30dc19a119" />
 <img width="200" height="200" alt="c53887b802fec00dfaab77a691af5a5e" src="https://github.com/user-attachments/assets/48409966-60d5-4152-bcb3-c0b533194e7a" />
 <img width="250" height="200" alt="a2161d8a3662f4b2f7a3b20b3104203f" src="https://github.com/user-attachments/assets/dd75b97e-e8b7-41fd-bebf-6fb87f050beb" />
+<img width="250" height="200" alt="HOj2WoZW0AAphzo" src="https://github.com/user-attachments/assets/468c47c2-da3d-4bd4-9869-e185ee7c9218" />
 
 
 
