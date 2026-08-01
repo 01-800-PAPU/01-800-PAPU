@@ -1,9 +1,3 @@
-# HI MCYT HILL!!
-
-i recently found out that i was nominated for #1 afk warrior on [pt-nominee](https://github.com/pt-nominee) so it would mean a lot to me if you VOTED ME WHEN VOTES OPEN!! theyre not open yet
-
-make sure to put your own github too so that they count the vote 🥳🥹 THANK YOU SO MUCH TO WHOEVER NOMINATED ME
-
 <img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
 
 *aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
