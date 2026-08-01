@@ -1,6 +1,6 @@
 # HI MCYT HILL!!
 
-i recently found out that i was nominated for #1 afk warrior on [pt-nominee](https://github.com/pt-nominee) so it would mean a lot to me if you voted for me on their strawpage WHEN THE VOTES OPEN!! theyre not open yet
+i recently found out that i was nominated for #1 afk warrior on [pt-nominee](https://github.com/pt-nominee) so it would mean a lot to me if you VOTED ME!! :D VOTES ARE OPENNN!!
 
 make sure to put your own github too so that they count the vote 🥳🥹 THANK YOU SO MUCH TO WHOEVER NOMINATED ME
 
