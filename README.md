@@ -10,9 +10,6 @@
 <img width="250" height="27" alt="Captura de pantalla 2026-07-31 024421" src="https://github.com/user-attachments/assets/cc7fd498-c91f-4a7c-b4f1-9f92bc8de8ff" />
 <img width="250" height="35" alt="image" src="https://github.com/user-attachments/assets/e0b47a39-7d98-47ff-8435-c770ec888125" />
 
-
-
-
 [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations)
 
 *i also have some other mentions too!*
