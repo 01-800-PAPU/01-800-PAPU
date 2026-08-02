@@ -9,12 +9,14 @@
 <img width="250" height="35" alt="Captura de pantalla 2026-07-30 225911" src="https://github.com/user-attachments/assets/9572ea60-88c4-4692-a407-db23f2f1dafe" />
 <img width="250" height="27" alt="Captura de pantalla 2026-07-31 024421" src="https://github.com/user-attachments/assets/cc7fd498-c91f-4a7c-b4f1-9f92bc8de8ff" />
 <img width="250" height="35" alt="image" src="https://github.com/user-attachments/assets/e0b47a39-7d98-47ff-8435-c770ec888125" />
+<img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/e1f586b3-207c-46a4-9afd-c527bdee72d0" />
 
-[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations)
+
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals)
 
 *i also have some other mentions too!*
 
-[pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-nominations](https://github.com/pt-nominations): well-known
+[pt-nominations](https://github.com/pt-nominations): well-known | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids
 
 THANK YOU SO MUCH!!
 
