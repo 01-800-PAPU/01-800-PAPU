@@ -2,7 +2,10 @@
 
 <img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
 
-*aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
+<details>
+  <summary>🏆</summary>
+
+  *aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
 
 <img width="250" height="30" alt="Captura de pantalla 2026-07-16 012407" src="https://github.com/user-attachments/assets/25aed527-db28-4578-9976-559d441f790d" />
 <img width="250" height="33" alt="Captura de pantalla 2026-07-28 153434" src="https://github.com/user-attachments/assets/3cf4d415-c7e2-4096-a4a2-42a778629c60" />
@@ -21,6 +24,8 @@
 [pt-nominations](https://github.com/pt-nominations): well-known | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids
 
 THANK YOU SO MUCH!!
+
+</details>
 
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
