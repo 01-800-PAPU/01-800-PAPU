@@ -27,6 +27,7 @@ THANK YOU SO MUCH!!
 <img width="210" height="200" alt="HJ_p4v2WoAAAK0k" src="https://github.com/user-attachments/assets/d749158f-b79e-4cb1-8d7f-0d8036b4556b" />
 <img width="250" height="200" alt="Captura de pantalla 2026-06-18 203431" src="https://github.com/user-attachments/assets/a4e753e8-5d21-4042-8ecd-57fae4b80052" />
 <img width="200" height="200" alt="622434789-1b832636-35a7-4180-9638-ad0de9c8ea13" src="https://github.com/user-attachments/assets/0dc98371-1857-4a47-afe9-0040df5f81df" />
+<img width="220" height="200" alt="image" src="https://github.com/user-attachments/assets/e87e02bd-8f83-44f6-9658-3a2d2c53da9a" />
 <img width="230" height="200" alt="24f38eb35acf691050aaa6a6b216fe28" src="https://github.com/user-attachments/assets/7817be02-33fa-4492-a5fd-1fe6f3737013" />
 <img width="200" height="200" alt="61f7740cfc32e21b07fee6bb02108fd1" src="https://github.com/user-attachments/assets/964ee386-f6c0-4c93-a4b9-11f77bf98af1" />
 <img width="210" height="200" alt="HMZ5tntXsAEr44B" src="https://github.com/user-attachments/assets/049dc182-6a41-444c-bbf5-b6495528d607" />
@@ -39,6 +40,7 @@ THANK YOU SO MUCH!!
 <img width="200" height="200" alt="c53887b802fec00dfaab77a691af5a5e" src="https://github.com/user-attachments/assets/48409966-60d5-4152-bcb3-c0b533194e7a" />
 <img width="250" height="200" alt="a2161d8a3662f4b2f7a3b20b3104203f" src="https://github.com/user-attachments/assets/dd75b97e-e8b7-41fd-bebf-6fb87f050beb" />
 <img width="250" height="200" alt="HOj2WoZW0AAphzo" src="https://github.com/user-attachments/assets/468c47c2-da3d-4bd4-9869-e185ee7c9218" />
+<img width="210" height="200" alt="image" src="https://github.com/user-attachments/assets/2191dd57-3c01-4b3e-aaef-b4bd3bce54d6" />
 
 
 
