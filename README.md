@@ -22,6 +22,18 @@ THANK YOU SO MUCH!!
 
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
+<details>
+  <summary>🕷️</summary>
+  
+<img width="400" height="32" alt="image" src="https://github.com/user-attachments/assets/d7f5e32f-a6dc-4937-aa08-e14aaf880d8c" />
+
+FIRST UP ON THE LIST WOOHOO [pt-medals](https://github.com/pt-medals)
+
+</details>
+
+<details>
+  <summary>📷</summary>
+  
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
 <img width="250" height="200" alt="HJR9TODX0Ac9WV2" src="https://github.com/user-attachments/assets/8ab3df64-ea2f-43c4-a00e-f5935566de52" />
@@ -43,6 +55,8 @@ THANK YOU SO MUCH!!
 <img width="250" height="200" alt="a2161d8a3662f4b2f7a3b20b3104203f" src="https://github.com/user-attachments/assets/dd75b97e-e8b7-41fd-bebf-6fb87f050beb" />
 <img width="250" height="200" alt="HOj2WoZW0AAphzo" src="https://github.com/user-attachments/assets/468c47c2-da3d-4bd4-9869-e185ee7c9218" />
 <img width="210" height="200" alt="image" src="https://github.com/user-attachments/assets/2191dd57-3c01-4b3e-aaef-b4bd3bce54d6" />
+
+</details>
 
 
 
