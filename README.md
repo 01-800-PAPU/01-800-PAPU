@@ -30,7 +30,7 @@ THANK YOU SO MUCH!!
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
 <details>
-  <summary>yume titles 🕷️</summary>
+  <summary>other titles🕷️</summary>
   
 <img width="400" height="32" alt="image" src="https://github.com/user-attachments/assets/d7f5e32f-a6dc-4937-aa08-e14aaf880d8c" />
 
