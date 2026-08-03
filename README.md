@@ -22,8 +22,9 @@ im usually at mcyt hill with vd server thats my family... but feel free to int a
 <img width="250" height="35" alt="image" src="https://github.com/user-attachments/assets/e0b47a39-7d98-47ff-8435-c770ec888125" />
 <img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/e1f586b3-207c-46a4-9afd-c527bdee72d0" />
 <img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/53c5aa23-b556-4b43-88bd-5ae97f88fc85" />
+<img width="250" height="25" alt="image" src="https://github.com/user-attachments/assets/a3e44fb9-18ba-435e-89fe-a9f0083a5583" />
 
-[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals) [ponychievements](https://github.com/ponychievements)
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals) [ponychievements](https://github.com/ponychievements) [ponytown-nominations](https://github.com/ponytown-nominations)
 
 *i also have some other mentions too!*
 
