@@ -6,6 +6,8 @@ hiiiiii im leo i love aldo_geo, q!aldo is my dad okay? also every time mctrio st
 
 im usually at mcyt hill with vd server thats my family... but feel free to int as long as me or one of my friends aren't on dni/uf/uid. i love to make friends!!
 
+<img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
+
 <details>
   <summary>titles 🏆</summary>
 
@@ -30,8 +32,6 @@ im usually at mcyt hill with vd server thats my family... but feel free to int a
 THANK YOU SO MUCH!!
 
 </details>
-
-<img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
 <details>
   <summary>other titles🕷️</summary>
