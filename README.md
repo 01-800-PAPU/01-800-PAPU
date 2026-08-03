@@ -3,7 +3,7 @@
 <img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
 
 <details>
-  <summary>🏆</summary>
+  <summary>titles 🏆</summary>
 
   *aldo_geo de pt !! muchas gracias soy el papu 🥹🩷*
 
@@ -30,16 +30,21 @@ THANK YOU SO MUCH!!
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
 <details>
-  <summary>🕷️</summary>
+  <summary>yume titles 🕷️</summary>
   
 <img width="400" height="32" alt="image" src="https://github.com/user-attachments/assets/d7f5e32f-a6dc-4937-aa08-e14aaf880d8c" />
 
 FIRST UP ON THE LIST WOOHOO [pt-medals](https://github.com/pt-medals)
 
+<img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/78952baf-1dce-44f5-9bbf-d70139eb6e9d" />
+
+AWWW YAY [yume-town](https://github.com/ponytownyumeshippers)
+
+
 </details>
 
 <details>
-  <summary>📷</summary>
+  <summary>random gallery 📷</summary>
   
 <img width="200" height="200" alt="HK6RabZWEAAaSFl" src="https://github.com/user-attachments/assets/26cc8ef1-1fe0-46a2-890c-3a4c694a5397" />
 <img width="250" height="200" alt="HKAS3tuXoAIK-p4" src="https://github.com/user-attachments/assets/81b5299d-d16b-4477-a84e-15c77df61d8b" />
