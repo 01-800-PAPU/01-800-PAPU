@@ -15,13 +15,13 @@
 <img width="250" height="27" alt="Captura de pantalla 2026-07-31 024421" src="https://github.com/user-attachments/assets/cc7fd498-c91f-4a7c-b4f1-9f92bc8de8ff" />
 <img width="250" height="35" alt="image" src="https://github.com/user-attachments/assets/e0b47a39-7d98-47ff-8435-c770ec888125" />
 <img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/e1f586b3-207c-46a4-9afd-c527bdee72d0" />
+<img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/53c5aa23-b556-4b43-88bd-5ae97f88fc85" />
 
-
-[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals)
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals) [ponychievements](https://github.com/ponychievements)
 
 *i also have some other mentions too!*
 
-[pt-nominations](https://github.com/pt-nominations): well-known | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids
+[pt-nominations](https://github.com/pt-nominations): well known ponies | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids | [ponychievements](https://github.com/ponychievements): well-known players + cuddly players
 
 THANK YOU SO MUCH!!
 
