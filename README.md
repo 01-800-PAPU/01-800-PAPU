@@ -21,7 +21,7 @@
 
 *i also have some other mentions too!*
 
-[pt-nominations](https://github.com/pt-nominations): well known ponies | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids | [ponychievements](https://github.com/ponychievements): well-known players + cuddly players
+[pt-nominations](https://github.com/pt-nominations): well-known ponies | [pt-walk-of-fame](https://github.com/pt-walk-of-fame): online 24/7 | [pt-fashion](https://github.com/pt-fashion): coolest ponies | [pt-medals](https://github.com/pt-medals): pt's popular kids | [ponychievements](https://github.com/ponychievements): well-known players + cuddly players
 
 THANK YOU SO MUCH!!
 
