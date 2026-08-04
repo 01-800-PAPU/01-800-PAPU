@@ -2,9 +2,7 @@
 
 <img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
 
-hiiiiii im leo i love aldo_geo, q!aldo is my dad okay? also every time mctrio streams together i cry tears of joy! alsso i love peter parker. i love every peter parker there is ok.
-
-im usually at mcyt hill with vd server thats my family... but feel free to int as long as me or one of my friends aren't on dni/uf/uid. i love to make friends!!
+hi
 
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
