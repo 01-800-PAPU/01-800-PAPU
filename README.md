@@ -40,7 +40,7 @@ THANK YOU SO MUCH!!
   
 <img width="400" height="32" alt="image" src="https://github.com/user-attachments/assets/d7f5e32f-a6dc-4937-aa08-e14aaf880d8c" />
 
-FIRST UP ON THE LIST WOOHOO [pt-medals](https://github.com/pt-medals)
+FIRST UP ON THE LIST WOOHOO [pt-medals2](https://github.com/pt-medals2)
 
 <img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/78952baf-1dce-44f5-9bbf-d70139eb6e9d" />
 
