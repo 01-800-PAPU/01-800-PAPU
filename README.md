@@ -46,6 +46,10 @@ FIRST UP ON THE LIST WOOHOO [pt-medals](https://github.com/pt-medals)
 
 AWWW YAY [yume-town](https://github.com/ponytownyumeshippers)
 
+<img width="400" height="35" alt="image" src="https://github.com/user-attachments/assets/0f530917-786c-4a73-a6a2-c6243f097069" />
+<img width="400" height="37" alt="image" src="https://github.com/user-attachments/assets/abfce0be-e2c7-4074-bcbb-f79d83aa2fce" />
+
+LETSGO N1 MONKEYGLASSES SHIPPER OAT (familial qaldo yume btw) [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
 </details>
 
