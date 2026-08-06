@@ -49,11 +49,6 @@ AWWW YAY [yume-town](https://github.com/ponytownyumeshippers)
 
 LETSGO N1 MONKEYGLASSES SHIPPER OAT (familial qaldo yume btw) [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
-<img width="500" height="25" alt="Captura de pantalla 2026-08-05 223400" src="https://github.com/user-attachments/assets/0803aa02-368e-4b60-880f-fe0702844cdd" />
-
-AWWW YOU'RE THE BEST CELL [pt-friendships](https://github.com/pt-friendships)
-
-
 </details>
 
 <details>
@@ -82,6 +77,16 @@ AWWW YOU'RE THE BEST CELL [pt-friendships](https://github.com/pt-friendships)
 <img width="210" height="200" alt="image" src="https://github.com/user-attachments/assets/2191dd57-3c01-4b3e-aaef-b4bd3bce54d6" />
 
 </details>
+
+<img width="600" height="35" alt="Captura de pantalla 2026-08-05 223400" src="https://github.com/user-attachments/assets/0803aa02-368e-4b60-880f-fe0702844cdd" />
+
+AWWW YOU'RE THE BEST CELL [pt-friendships](https://github.com/pt-friendships)
+
+<img width="600" height="30" alt="image" src="https://github.com/user-attachments/assets/182968d1-6e24-4a65-ae1f-40f6d1a6f8fd" />
+
+OMG C LA CHOSE LA PLUS ADORABLE QUE J'AI JAMAIS LUE MIZZIE MERCI BEAUCOUP!!! JE T'ADORE [pt-friendships](https://github.com/pt-friendships)
+
+
 
 
 
