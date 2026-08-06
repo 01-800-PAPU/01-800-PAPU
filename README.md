@@ -78,13 +78,15 @@ LETSGO N1 MONKEYGLASSES SHIPPER OAT (familial qaldo yume btw) [pt-loveforfiction
 
 </details>
 
+***[pt-friendships](https://github.com/pt-friendships)***
+
 <img width="600" height="35" alt="Captura de pantalla 2026-08-05 223400" src="https://github.com/user-attachments/assets/0803aa02-368e-4b60-880f-fe0702844cdd" />
 
-AWWW YOU'RE THE BEST CELL [pt-friendships](https://github.com/pt-friendships)
+AWWW YOU'RE THE BEST CELL
 
 <img width="600" height="30" alt="image" src="https://github.com/user-attachments/assets/182968d1-6e24-4a65-ae1f-40f6d1a6f8fd" />
 
-OMG C LA CHOSE LA PLUS ADORABLE QUE J'AI JAMAIS LUE MIZZIE MERCI BEAUCOUP!!! JE T'ADORE [pt-friendships](https://github.com/pt-friendships)
+OMG C LA CHOSE LA PLUS ADORABLE QUE J'AI JAMAIS LUE MIZZIE MERCI BEAUCOUP!!! JE T'ADORE
 
 
 
