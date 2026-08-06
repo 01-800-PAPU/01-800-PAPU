@@ -49,6 +49,11 @@ AWWW YAY [yume-town](https://github.com/ponytownyumeshippers)
 
 LETSGO N1 MONKEYGLASSES SHIPPER OAT (familial qaldo yume btw) [pt-loveforfictional](https://github.com/pt-loveforfictional)
 
+<img width="500" height="25" alt="Captura de pantalla 2026-08-05 223400" src="https://github.com/user-attachments/assets/0803aa02-368e-4b60-880f-fe0702844cdd" />
+
+AWWW YOU'RE THE BEST CELL [pt-friendships](https://github.com/pt-friendships)
+
+
 </details>
 
 <details>
