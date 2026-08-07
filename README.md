@@ -22,8 +22,9 @@ hi
 <img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/53c5aa23-b556-4b43-88bd-5ae97f88fc85" />
 <img width="250" height="25" alt="image" src="https://github.com/user-attachments/assets/a3e44fb9-18ba-435e-89fe-a9f0083a5583" />
 <img width="250" height="33" alt="image" src="https://github.com/user-attachments/assets/8a92b766-2bbc-4e3b-a950-c455c76f6347" />
+<img width="250" height="30" alt="image" src="https://github.com/user-attachments/assets/a2c986a3-2347-4e67-b788-397c2640ea58" />
 
-[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals) [ponychievements](https://github.com/ponychievements) [ponytown-nominations](https://github.com/ponytown-nominations) [title-town](https://github.com/title-town)
+[pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [pt-contributers](https://github.com/pt-contributers) [pt-fashion](https://github.com/pt-fashion) [fans-town](https://github.com/fans-town) [pt-nominations](https://github.com/pt-nominations) [pt-medals](https://github.com/pt-medals) [ponychievements](https://github.com/ponychievements) [ponytown-nominations](https://github.com/ponytown-nominations) [title-town](https://github.com/title-town) [FOLKTOWN](https://github.com/folktown)
 
 *i also have some other mentions too!*
 
@@ -42,7 +43,7 @@ FIRST UP ON THE LIST WOOHOO [pt-medals2](https://github.com/pt-medals2)
 
 <img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/78952baf-1dce-44f5-9bbf-d70139eb6e9d" />
 
-AWWW YAY [yume-town](https://github.com/ponytownyumeshippers)
+AWWW YAY [YUME-TOWN](https://github.com/ponytownyumeshippers)
 
 <img width="400" height="35" alt="image" src="https://github.com/user-attachments/assets/0f530917-786c-4a73-a6a2-c6243f097069" />
 <img width="400" height="37" alt="image" src="https://github.com/user-attachments/assets/abfce0be-e2c7-4074-bcbb-f79d83aa2fce" />
