@@ -2,7 +2,7 @@
 
 <img width="1200" height="452" alt="HKZeugwXwAAxqKW" src="https://github.com/user-attachments/assets/3dc45d30-b9a7-416f-9ae2-f3c807ec5bf6" />
 
-hi <img width="350" height="250" alt="image" src="https://github.com/user-attachments/assets/85ea01e6-46dc-4e91-9e95-018dc4a88e24" />
+hi bmf im kinda awkward AT FIRST THOUGH so sorry in advance but i warm up to people quickly YEP. if u have c+h in your name and cosplay the same fandom as me theres an 85% chance that i will sit with you at some point of time because i love c+h
 
 
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
