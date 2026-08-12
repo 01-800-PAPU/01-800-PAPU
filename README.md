@@ -98,6 +98,11 @@ AWWW YOU'RE THE BEST CELL
 
 OMG C LA CHOSE LA PLUS ADORABLE QUE J'AIE JAMAIS LUE MIZZIE MERCI BEAUCOUP!!! JE T'ADORE AWW
 
+<img width="700" height="100" alt="image" src="https://github.com/user-attachments/assets/b31c3664-68e7-4977-8cc8-137023f7ae31" />
+
+YOU'RE EPIC VASH
+
+
 
 
 
