@@ -4,8 +4,6 @@
 
 hi bmf im kinda awkward AT FIRST THOUGH so sorry in advance but i warm up to people quickly YEP. if u have c+h in your name and cosplay the same fandom as me theres an 85% chance that i will sit with you at some point of time because i love c+h
 
-biggest q!aldo, q!etoiles, q!furryduo fan EVER
-
 
 <img width="895" height="296" alt="image" src="https://github.com/user-attachments/assets/6be5b961-1878-4797-a6ff-1314ff35f04e" />
 
